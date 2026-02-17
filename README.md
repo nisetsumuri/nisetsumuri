@@ -25,7 +25,7 @@
     <br>
     golden kamuy, 8:11, pokemon, monster hunter: world<br>
     kingdom come deliverance 2, rdr2, jjba, mp100, paleontology<br>
-    nudibranchs, slugs, & gastropods, 13th to 19th century history
+    nudibranchs, slugs, & gastropods, g&b, 13th to 19th century history
   </details><br><br>
 
 <img width="700" height="300" alt="image psd(60)" src="https://github.com/user-attachments/assets/28200764-d907-4053-bf2a-87588695704e" />
