@@ -7,8 +7,7 @@
   it/its pronouns. i am transfem, but i prefer masc nouns. <br>
   i am in my 20s. i study neurology & biopsychology in medical school. <br>
   c+h is okay. i block and hide frequently. <br>
-  don't be shy. <br>
-  EN/JP/AR
+  don't be shy.
 <br><br>
 
 <img width="700" height="300" alt="image psd(59)" src="https://github.com/user-attachments/assets/f2b9bc32-8c98-4e62-ae1d-91b2726ec5e0" />
