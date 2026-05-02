@@ -1,7 +1,10 @@
 <div align="center">
 
-<img width="700" height="300" alt="image psd(58)" src="https://github.com/user-attachments/assets/c42cd1b9-e8ac-4a0f-92b7-201fbc9b680a" />
+<img width="700" height="300" alt="Ogata peeking up" src="https://github.com/user-attachments/assets/c42cd1b9-e8ac-4a0f-92b7-201fbc9b680a" />
   <br><br>
+
+  <img width="551" height="578" alt="Tsukishima in a shirt saying I LOVE SHOOTING PREGNANT LADIES" src="https://github.com/user-attachments/assets/28252aed-49db-4afe-a7fd-7d25b9793bae" />
+
 
   hello. im <ins>ccpccb</ins>. you can also call me coda. <br>
   it/its pronouns. i am transfem, but i prefer masc nouns. <br>
@@ -10,7 +13,7 @@
   don't be shy.
 <br><br>
 
-<img width="700" height="300" alt="image psd(59)" src="https://github.com/user-attachments/assets/f2b9bc32-8c98-4e62-ae1d-91b2726ec5e0" />
+<img width="700" height="300" alt="Ogata peeking further" src="https://github.com/user-attachments/assets/f2b9bc32-8c98-4e62-ae1d-91b2726ec5e0" />
 <br><br>
   
   <details>
@@ -29,5 +32,5 @@
     nudibranchs, slugs, & gastropods, g&b, 13th to 19th century history
   </details><br><br>
 
-<img width="700" height="300" alt="image psd(60)" src="https://github.com/user-attachments/assets/28200764-d907-4053-bf2a-87588695704e" />
+<img width="700" height="300" alt="Ogata looking at the viewer" src="https://github.com/user-attachments/assets/28200764-d907-4053-bf2a-87588695704e" />
 </div>
