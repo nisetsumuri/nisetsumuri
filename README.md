@@ -2,10 +2,7 @@
 
 <img width="700" height="300" alt="Ogata peeking up" src="https://github.com/user-attachments/assets/c42cd1b9-e8ac-4a0f-92b7-201fbc9b680a" />
   <br><br>
-
-  <img width="551" height="578" alt="Tsukishima in a shirt saying I LOVE SHOOTING PREGNANT LADIES" src="https://github.com/user-attachments/assets/28252aed-49db-4afe-a7fd-7d25b9793bae" />
-
-
+  
   hello. im <ins>ccpccb</ins>. you can also call me coda. <br>
   it/its pronouns. i am transfem, but i prefer masc nouns. <br>
   i am in my 20s. i study neurology & biopsychology in medical school. <br>
