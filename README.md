@@ -6,7 +6,8 @@
   hello. im <ins>ccpccb</ins>. you can also call me coda. <br>
   it/its pronouns. i am transfem, but i prefer masc nouns. <br>
   i am in my 20s. i study neurology & biopsychology in medical school. <br>
-  c+h is okay. i block and hide frequently. <br>
+  c+h is okay. i block and hide frequently.<br>
+  i am also zoomed in to the max 90% of the time, if you need something, w2i.<br>
   don't be shy.
 <br><br>
 
