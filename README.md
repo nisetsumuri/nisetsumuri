@@ -3,12 +3,12 @@
 <img width="700" height="300" alt="Ogata peeking up" src="https://github.com/user-attachments/assets/c42cd1b9-e8ac-4a0f-92b7-201fbc9b680a" />
   <br><br>
   
-  hello. im <ins>ccpccb</ins>. you can also call me coda. <br>
+  hello. im <ins>boreal</ins>. you can also call me by the pony name. <br>
   it/its pronouns. i am transfem, but i prefer masc nouns. <br>
   i am in my 20s. i study neurology & biopsychology in medical school. <br>
   c+h is okay. i block and hide frequently.<br>
   i am also zoomed in to the max 90% of the time, if you need something, w2i.<br>
-  don't be shy.
+  don't be shy. you may see our alter around, with a similar profile.
 <br><br>
 
 <img width="700" height="300" alt="Ogata peeking further" src="https://github.com/user-attachments/assets/f2b9bc32-8c98-4e62-ae1d-91b2726ec5e0" />
